@@ -1,2 +1,2 @@
-# Pr-digy
+# Prødigy
 fuck off!
